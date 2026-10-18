@@ -13,3 +13,11 @@ i'm very very pazi
 ------------------------------------
 
 JMM = Jalish Muth Mare
+
+-----------------------
+
+Ami khai mara
+
+amare sobar dai para
+
+akhon nafiz ghor chara
