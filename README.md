@@ -2,7 +2,7 @@
 
 Arafat khay kela
 
-kore khali jhamela
+khak kela mana ke korse?
 
 --------------------------------------------------
 
@@ -13,12 +13,14 @@ i'm very very pazi
 ------------------------------------
 
 JMM = Jalish Muth Mare
+maruk !!
 
 -----------------------
 
 Ami khai mara
 
 amare sobar dai para
+roam halar put e jot !~!
 
 akhon nafiz ghor chara
 ha ha togore cooked.
