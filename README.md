@@ -21,3 +21,7 @@ Ami khai mara
 amare sobar dai para
 
 akhon nafiz ghor chara
+ha ha togore cooked.
+edi baad diya vlo hoiya jaa
+ar kisu koilam naa
+
